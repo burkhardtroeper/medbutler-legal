@@ -5,7 +5,7 @@ Schlesierstraße 17
 82110 Germering
 ## Kontakt
 Telefon: 00491772472812
-E-Mail: info@vanguardiaboys.rocks
+E-Mail: info at vanguardiaboys.rocks
 ## Haftung für Inhalte
 Als Diensteanbieter sind wir gemäß § 7 Abs.1 TMG für eigene Inhalte auf diesen Seiten nach den
 allgemeinen Gesetzen verantwortlich. Nach §§ 8 bis 10 TMG sind wir als Diensteanbieter jedoch nicht
